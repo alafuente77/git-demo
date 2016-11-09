@@ -6,3 +6,9 @@ para ver que onda..
 Acabo de hacer el push al repositorio remoto y agregue esta misma linea en el repositorio local para que ver que pasa..
 
 zarazaasdas.kdmslkfmslgmdlgmdlñgkedgñk
+
+adkalsdijanlifsj].amd}ñ{
+}
+a s-.d ma.dsasñ .almskfñlaskf.}
+
+asñlkas
